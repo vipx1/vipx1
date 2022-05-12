@@ -4,7 +4,7 @@
 - 💞️ I’m not looking to collaborate on anything but as metioned above, I do like budgie desktop.
 - 📫 How to reach me, here, in github or Twitter @vipx1. 👍
 
-PC's.. :ROFL:
+PC's.. 🤣
 
 <!---
 vipx1/vipx1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
